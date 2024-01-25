@@ -1,0 +1,2 @@
+# Quotes-Capture
+untuk memotivasi
